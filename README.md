@@ -1,1 +1,4 @@
-# JeeResult
+# JeeResult APP
+NIT JAMSHEDPUR
+Satyam Kumar
+Reg.No.- 2019UGCS045
